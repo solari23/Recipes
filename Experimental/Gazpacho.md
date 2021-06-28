@@ -6,7 +6,7 @@
 * 1/2 english cucumber, peeled and diced
 * 1/2 large green pepper, diced
 * 1/2 cup green onion, chopped
-* 3 cloves garlic, roughly crushed/chopped
+* 2 cloves garlic, roughly crushed/chopped
 * 2 tbsp fresh basil, finely chopped
 * 4 tbsp fresh mint, finely chopped
 * 1/3 cup extra virgin olive oil
