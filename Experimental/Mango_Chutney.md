@@ -2,8 +2,8 @@
 
 ## Ingredients
 * 4 cups mango, cubed
-* 1 cup thinly chopped onion
-* 3 garlic cloves, minced
+* 1 cup red onion, thinly chopped
+* 3 cloves garlic, minced
 * 2 tbsp fresh ginger, minced
 * 1 habanero pepper, minced
 * 1/2 cup brown sugar
