@@ -10,7 +10,7 @@
 * 2 tbsp fresh basil, finely chopped
 * 4 tbsp fresh mint, finely chopped
 * 1/3 cup extra virgin olive oil
-* 2 tbps sherry vinegar
+* 2 tbsp sherry vinegar
 * juice from 1 lime
 * 1 tsp ground cumin
 * 1/2 tsp dried oregano
