@@ -1,4 +1,4 @@
-# Gazpacho Verde
+# Gazpacho
 
 ## Ingredients
 * 4-5 large Roma tomatoes, peeled and diced
