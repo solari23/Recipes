@@ -7,9 +7,9 @@
 * 2 tsp baking powder
 * 1/2 tsp baking soda
 * 1/2 tsp ground cinnamon
-* 1 pinch salt
-* 1 3/4 cup whole milk
-* 1/2 cup vegetable oil
+* 1/2 tsp salt
+* 1 1/2 cup whole milk
+* 1/4 cup vegetable oil
 * 2 large eggs, beaten
 * 2 tsp vanilla extract
 
