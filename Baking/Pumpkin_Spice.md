@@ -4,7 +4,7 @@ Makes about 3/4 cup of pumpkin spice mixture.
 
 ## Ingredients
 * 1/4 cup ground cinnamon
-* 2 tsp ground ginger
+* 2 tbsp ground ginger
 * 2 tsp ground nutmeg
 * 2 tsp ground cloves
 * 1/4 tsp cardamom
